@@ -24,4 +24,4 @@
 
 完全免费，无需注册
 所有的日本AV资源完全免费，你无需注册任何账户或购买会员，点击即可观看。我们的平台致力于提供简单方便的观看体验，让你无需担心复杂的注册流程和隐藏费用，直接进入观影状态。
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/xlin156/34570 ）</span>
